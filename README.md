@@ -1,1 +1,0 @@
-file:///C:/Users/59621840848/Downloads/Isabelly%20Santos%20Mendes%20-%20PROJETO%20MULTI%20CLOUD%20AZURE%20&%20AWS%20(2).pdf
